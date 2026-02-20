@@ -1,2 +1,1 @@
-# ABCDEFGHIJKLMNOPQ
-GABUT
+Dear diary
